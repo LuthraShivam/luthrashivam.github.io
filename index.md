@@ -1,5 +1,5 @@
-Here you can say lots of fun things about your site.
+Heya, I'm Shivam.
 
-Maybe say a some things about yourself.
+I like sushi, stocks and shoes. A bit of tech too. Oh and dogs, love dogs.
 
-Or maybe what you plan to blog about.
+Hope you enjoy your stay here :D
